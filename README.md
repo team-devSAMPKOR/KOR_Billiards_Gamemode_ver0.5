@@ -1,5 +1,5 @@
 #KOR_Billiards_Gamemode_ver0.5
 
-###http://tvpot.daum.net/v/vabb4stqKzpzOuJrCtCrsau
+<< https://www.youtube.com/watch?v=eX5DijQr60M >>
 **플레이영상** 포켓볼 삼구 사구
-###http://tvpot.daum.net/v/v0bfb0ViVXAiO6oOtltfOfE
+<< https://www.youtube.com/watch?v=eSb1dBP0y_Q >>
